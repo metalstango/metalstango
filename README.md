@@ -1,4 +1,4 @@
-hiii im hira!! i use he/she pronouns, im 18, and i dont know what else to put here actually
+hiii im hira!! i use he/she pronouns, im 19, and i dont know what else to put here actually
 
 ![gangle-tadc](https://github.com/user-attachments/assets/30cea2b1-b305-42dd-959a-c4caf26113c6)
 
