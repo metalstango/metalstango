@@ -8,7 +8,7 @@ im hira!! (pronounced kind of like he-rah or hih-rah this is easier to explain v
 please feel free to talk to me or sit with me, i love talking to people and making new friends, i'm just a tad shy and i have trouble initiating conversations..... if i don't respond i might be doing homework or drawing, i promise i'm not ignoring you on purpose!! i try to check ponytown every once in a while ... ♡ if i am afk feel free to whisper to me !!!! 
 
 
-DNI if you like stuff like BTD or DOL or other things of that nature (spongebob foghorn sound) if you're weird proship lolishota freak or a terf, and also if you're like a huge ribbun fan idm if you like it just Please not around me
+DNI if you like stuff like BTD or DOL or other things of that nature (spongebob foghorn sound) if you're weird darkship lolishota freak or a terf, and also if you're like a huge ribbun fan idm if you like it just Please not around me
 
 
 more info such as my interests are in my strawpage !! thank you for readingg ♬
