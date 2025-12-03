@@ -1,4 +1,4 @@
-HIHIHI HIIIII im rlly bad with coding ill figure out how to make this look not to ugly later
+HIHIHI HIIIII im rlly bad with coding ill figure out how to make this look not so ugly later
 
 ![gangle-tadc](https://github.com/user-attachments/assets/30cea2b1-b305-42dd-959a-c4caf26113c6)
 
