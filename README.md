@@ -1,4 +1,4 @@
-im hira!! i use he/she pronouns, & im 19! I'm currently really into the amazing digital circus ... sorry i am a geek .... i am a little crazy over gangle & zooble
+im hira!! i use he/she pronouns, & im 19! I'm currently really into TADC ... sorry i am a geek .... i am a little crazy over gangle & zooble i dont play abt them
 
 
 ![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/f621d0aa-6794-4f15-997b-ed3561331338)
