@@ -1,6 +1,7 @@
 HIHIHI HIIIII im rlly bad with coding ill figure out how to make this look not so ugly later
 
-![gangle-tadc](https://github.com/user-attachments/assets/30cea2b1-b305-42dd-959a-c4caf26113c6)
+<img width="498" height="283" alt="image" src="https://github.com/user-attachments/assets/22530ebd-2995-40a6-a2b2-387bfab70906" />
+
 
 im hira!! (pronounced kind of like he-rah or hih-rah this is easier to explain vocally sorry if this is confusing) i use he/she pronouns, & im 19! I'm currently really into the amazing digital circus ... it is taking over my life please please Please talk to me about it if you're also a fan ...
 
