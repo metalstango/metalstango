@@ -1,12 +1,10 @@
-im hira!! i use he/she pronouns, & im 19! I'm currently really into TADC ... sorry i am a geek .... i am a little crazy over gangle & zooble i dont play abt them
-
-
-![gangle-dress-gangle-beach](https://github.com/user-attachments/assets/f621d0aa-6794-4f15-997b-ed3561331338)
+im hira!! i use he/she pronouns, & im 19! I'm currently really into hetalia ... sorry i am a geek .... i am a little crazy over fruk i dont play abt them
 
 
 
 
-please feel free to talk to me or sit with me, i love talking to people and making new friends, i'm just a tad shy and i have trouble initiating conversations..... if i don't respond i might be doing homework or drawing, i promise i'm not ignoring you on purpose!! i try to check ponytown every once in a while ... ♡ if i am afk feel free to whisper to me !!!! do not flirt with me though i have a [GIRLFRIEND!](https://github.com/ozzkechi)
+
+please feel free to talk to me or sit with me, i love talking to people and making new friends, i'm just a tad shy and i have trouble initiating conversations..... if i don't respond i might be doing homework or drawing, i promise i'm not ignoring you on purpose!! i try to check ponytown every once in a while ... ♡ if i am afk feel free to whisper to me...
 
  !!! IDM if you take inspo from my ponies but please ask/lmk through whispers or my atabook its scary to see my like monozygotic twin when im sitting with my friends without any warning !!!
 
