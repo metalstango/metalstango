@@ -1,5 +1,6 @@
 im hira!! i use he/she pronouns, & im 19! I'm currently really into hetalia ... sorry i am a geek .... i am a little crazy over fruk i dont play abt them
 
+<img width="498" height="498" alt="fruk-france-hetalia" src="https://github.com/user-attachments/assets/b9a1d47c-8611-4bdd-af69-10322acc6cf6" />
 
 
 please feel free to talk to me or sit with me, i love talking to people and making new friends, i'm just a tad shy and i have trouble initiating conversations..... if i don't respond i might be doing homework or drawing, i promise i'm not ignoring you on purpose!! i try to check ponytown every once in a while ... ♡ if i am afk feel free to whisper to me...
