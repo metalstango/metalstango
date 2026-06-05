@@ -1,5 +1,6 @@
 im hira!! i use he/she pronouns, & im 19! I'm currently really into hetalia ... sorry i am a geek .... i am a little crazy over fruk i dont play abt them
 
+<img width="498" height="498" alt="image" src="https://github.com/user-attachments/assets/434d204b-4f37-46e9-ae01-113e0c237e38" />
 
 
 
