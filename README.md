@@ -1,3 +1,5 @@
+<img width="1200" height="250" alt="image" src="https://github.com/user-attachments/assets/22b7d7b3-9511-4b45-87df-3ea346600087" />
+
 hi im hira i use he/she pronouns, & im 19  I'm currently really into hetalia ... i like dennor
 
 <img width="480" height="270" alt="aph-hetalia" src="https://github.com/user-attachments/assets/d7757584-c337-42e6-8d48-acce927eba27" />
