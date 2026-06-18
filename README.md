@@ -1,4 +1,4 @@
-<img width="638" height="51" alt="tumblr_5fbf76a1b05ef47764bec054262a2dd1_08708040_640" src="https://github.com/user-attachments/assets/2b8f2eb5-df98-4516-a02b-8b0b3e149cce" />
+<p align="center"><img width="638" height="51" alt="tumblr_5fbf76a1b05ef47764bec054262a2dd1_08708040_640" src="https://github.com/user-attachments/assets/2b8f2eb5-df98-4516-a02b-8b0b3e149cce" />
 
 <p align="center">hi im hira i use he/she pronouns, & im 19  I'm currently really into hetalia ... i like dennor
 
@@ -8,4 +8,4 @@
 
 <p align="center"> idm if you take inspo from my ponies but please ask/lmk through whispers or my somethihg its scary to see my monozygotic twin when im sitting with my friends
 
-<img width="638" height="51" alt="tumblr_5fbf76a1b05ef47764bec054262a2dd1_08708040_640" src="https://github.com/user-attachments/assets/2b8f2eb5-df98-4516-a02b-8b0b3e149cce" />
+<p align="center"><img width="638" height="51" alt="tumblr_5fbf76a1b05ef47764bec054262a2dd1_08708040_640" src="https://github.com/user-attachments/assets/2b8f2eb5-df98-4516-a02b-8b0b3e149cce" />
