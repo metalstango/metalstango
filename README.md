@@ -3,6 +3,7 @@
 <p align="center">hi im hira or ceren i use he/she pronouns, & im 19  I'm currently really into hetalia ... i like dennor. i'm usually sitting with poyo and grace by the hetalia area on safe server but i love c+h even if im with those two lets cuddle Ok..?
   
 <img width="374" height="281" alt="hetalia-aph" src="https://github.com/user-attachments/assets/a4985d1f-f2f6-4ccf-8efa-44843c6303c2" />
+
  <p align="center">me and little poyo pictured above
   
   <img width="320" height="25" alt="tumblr_f30fcdbcb246e41799eea6772df092a4_efe047da_640" src="https://github.com/user-attachments/assets/a295e93a-90dd-42bb-a7b9-2266d61b1b63" />
