@@ -1,6 +1,6 @@
 <p align="center"><img width="638" height="51" alt="tumblr_5fbf76a1b05ef47764bec054262a2dd1_08708040_640" src="https://github.com/user-attachments/assets/2b8f2eb5-df98-4516-a02b-8b0b3e149cce" />
 
-<p align="center">hi im hira or ceren i use he/she pronouns, & im 19  I'm currently really into hetalia ... i like dennor °❀⋆.ೃ࿔*:･ i'm usually sitting with poyo and grace by the hetalia area on safe server but i love c+h even if im with those two lets cuddle Ok..? my only real dni is darkship stuff on here honestly
+<p align="center">hi im hira or ceren im 19  I'm currently really into hetalia ... i like dennor (ﾟヮﾟ)中 ♡ ರ_ರ೨ i'm usually sitting with poyo and grace by the hetalia area on safe server but i love c+h even if im with those two lets cuddle Ok..? my only real dni is darkship stuff on here honestly
   
 <p align="center"><img width="374" height="281" alt="hetalia-aph" src="https://github.com/user-attachments/assets/a4985d1f-f2f6-4ccf-8efa-44843c6303c2" />
 
