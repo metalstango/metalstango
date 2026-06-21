@@ -4,7 +4,7 @@
   
 <p align="center"><img width="374" height="281" alt="hetalia-aph" src="https://github.com/user-attachments/assets/a4985d1f-f2f6-4ccf-8efa-44843c6303c2" />
 
- <p align="center">me and little poyo pictured above
+ <p align="center">me and little poyo hi poyo i love u
   
 <p align="center"> <img width="320" height="25" alt="tumblr_f30fcdbcb246e41799eea6772df092a4_efe047da_640" src="https://github.com/user-attachments/assets/a295e93a-90dd-42bb-a7b9-2266d61b1b63" />
 
