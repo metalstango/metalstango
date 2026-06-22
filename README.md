@@ -10,6 +10,6 @@
 
 <p align="center">please talk to me or sit with me i'm shy and i have trouble initiating conversations, if i don't respond to a whisper i might be doing homework or drawing, i try to check ponytown every once in a while ❅.⁺₊ idm if you take inspo from my ponies but please ask/lmk through whispers or my somethihg its scary to see my monozygotic twin when im sitting with my friends 
   
-<p align="center"> i like i lot of ships i like dennor i like sufin i like gerita i like fruk i like amepan i like rusame i like turgre i like swissaus i like pruhun i like a lot and im open to alot sit with me sit with me esp if im alone match with me lets be super cute ... Ok..?
+<p align="center"> i like i lot of ships i like dennor i like sufin i like gerita i like fruk i like amepan i like rusame i like swissaus i like pruhun i like a lot and im open to alot sit with me sit with me esp if im alone match with me lets be super cute ... Ok..?
 
 <p align="center"><img width="638" height="51" alt="tumblr_5fbf76a1b05ef47764bec054262a2dd1_08708040_640" src="https://github.com/user-attachments/assets/2b8f2eb5-df98-4516-a02b-8b0b3e149cce" />
